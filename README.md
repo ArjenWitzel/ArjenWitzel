@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning a way to inflowens WEF bad world wide plans
 - 💞️ I’m looking to collaborate on noting
 - 📫 How to reach me you have to find out
--    It os possible to chst with me while i am not there : www.lookhere.eu/talk
+-    It is possible to chst with me while i am not there : www.lookhere.eu/talk
 
 
 <!---
