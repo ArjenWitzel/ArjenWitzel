@@ -1,9 +1,8 @@
 - 👋 Hi, I’m @ArjenWitzel
 - 👀 I’m interested in humans
 - 🌱 I’m currently learning a way to inflowens WEF bad world wide plans
-- 💞️ I’m looking to collaborate on noting
 - 📫 How to reach me you have to find out
--    It is possible to chat with me while i am not there : www.lookhere.eu/talk
+- 💞️  It is possible to chat with me while i am not there : www.lookhere.eu/talk
 -    or with eatchudders by this build chatbox : https://www.lookhere.eu///chatbox/index.php
 
 <!---
